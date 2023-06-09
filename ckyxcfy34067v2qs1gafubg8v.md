@@ -1,4 +1,11 @@
-## Best Number Game
+---
+title: "Best Number Game"
+datePublished: Thu Jan 27 2022 19:02:44 GMT+0000 (Coordinated Universal Time)
+cuid: ckyxcfy34067v2qs1gafubg8v
+slug: best-number-game
+tags: nodejs
+
+---
 
 %[https://www.youtube.com/watch?v=zzlWTHUZg0g]
 
