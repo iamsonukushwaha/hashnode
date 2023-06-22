@@ -9,7 +9,7 @@ tags: wemakedevs
 
 Let us see how we can create a fully functional and working Banking System Application using Nodejs & MongoDB.
 
-It is hosted on GitHub and all it's code is also available on GitHub.
+It is hosted on Heroku and all it's code is also available on GitHub.
 
 Please watch these two videos to learn how to code and run this app.
 
