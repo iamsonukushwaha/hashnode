@@ -7,444 +7,232 @@ tags: news
 
 ---
 
-Incendiary rhetoric on Sikh's murder stokes debate in Canada diaspora.
-
-Chandrayaan-3: Indian space agency Isro says no signal yet from Moon lander.
-
-Arunachal Pradesh: India-China border row flares over athlete visas.
-
-India-Canada row: Justin Trudeau repeats allegation against India amid row.
-
-Nari Shakti: India okays women's reservation bill - but nothing will change soon.
-
-Tourists caught in India-Canada visa row.
-
-Cricket World Cup: Pakistan's Naseem Shah ruled out with shoulder injury.
-
-India suspends visas for Canadians as row escalates.
-
-Hardeep Singh Nijjar: Anger in India as Trudeau points finger over murder.
-
-Special session: Modi introduces women's bill in new India parliament.
-
-Tamil Nadu: The Indian men who photographed dead bodies.
-
-Torture, rape, killings in Manipur: An Indian state's brutal conflict.
-
-Who was Canadian Sikh leader Hardeep Singh Nijjar?.
-
-Canada: How ties with India soured over Hardeep Singh Nijjar killing.
-
-Chandrayaan-3: How important are India's Moon mission findings?.
-
-How Hardeep Singh Nijjar's murder in Canada fuelled tensions with India.
-
-G20 summit: What do the people of Delhi think about the event?.
-
-G20 summit: The two sides of Delhi’s makeover.
-
-Watch India’s successful landing on the Moon.
-
-India PM Modi speaks after Chandrayaan-3's historic landing.
-
-'My goodness!' - BBC reporter's live reaction to historic moon landing.
-
-Watch: The moment India launched its historic Moon mission Chandrayaan-3.
-
-'Pathetic mindset': BJP slams Cong's 'Modi Multiplex' remark for new Parliament.
-
-No signal from Vikram & Pragyan yet, can wait longer: Isro chief.
-
-NIA seizes properties of SFJ leader, Nijjar in big crackdown.
-
-Haryana Cong chief's 'abusive' remark against PM stirs row.
-
-Watch: Federer's epic reply to Nadal's query.
-
-India overtakes China in number of immigrants in US.
-
-'Big difference': Rahul on opening and batting in middle-order.
-
-DUSU election : ABVP wins 3 seats, NSUI bags VP post.
-
-Nijjar killing: US confirms Five Eyes shared intel with Canada.
-
-'Two big semiconductor proposals under process in India'.
-
-Bigg Boss 17 promo: Salman Khan hints at the new challenges, says "Lenge ishq ke kai imtehaan aur...".
-
-Watch: Scuffle breaks out in Delhi over iPhone 15 delay.
-
-PM Modi lays foundation stone for Varanasi cricket stadium.
-
-Ukraine says it's 'unleashing hell' on Russians near key city.
-
-Simultaneous polls: Panel holds 1st meeting, to seek views of parties.
-
-Babar Azam can set the World Cup on fire: Gambhir.
-
-Fearing hate crimes, students explore alternatives to Canada.
-
-Another Quad member backs India's UNSC bid.
-
-Fight of ideology going on between BJP and Congress: Rahul.
-
-Watch: Tendulkar presents PM Modi Indian cricket team jersey.
-
-Did Trudeau govt snoop on personnel of Indian high commission?.
-
-Diya Aur Baati Hum’s Priyanka Singh delivers a baby girl (Exclusive).
-
-2nd ODI: Pressure increases on Shreyas and Ashwin.
-
-A Covid tale leads to grandmom from Kerala getting Pope’s call.
-
-New parents Rahul Vadiya and Disha Parmar take home their little daughter from hospital; former says "I am taking home my Lakshmi on my birthday".
-
-Make in India: Govt eyes $20 billion local sourcing for IT parts.
-
-Canada ‘blocked’ extradition requests for NRIs in drugs case.
-
-Pakistan's pre-World Cup trip to Dubai cancelled due to visas delay.
-
-Manipur internet ban to be lifted from today, says CM.
-
-India shared Nijjar file, but Canada put him on no-fly list.
-
-'Probe shoddy': SC acquits two on death row of murder.
-
-Watch: Kerala gets first Orange Vande Bharat Express.
-
-No offence against husband under Section 377 for unnatural sex wife.
-
-Eye on China, Quad seeks ‘free’ Indo-Pacific.
-
-X social media's India, South Asia policy head resigns.
-
-KL Rahul reveals chat with Suryakumar Yadav.
-
-India slams Pakistan for raking up Kashmir issue at UNGA.
-
-Watch: R Ashwin's late-night batting practice after India's win.
-
-Can India score a century of medals at Asian Games?.
-
-Khatron Ke Khiladi 13: From scratching Arjit Taneja's head to cutting Nyrraa Banerji hair; Rohit Shetty makes Divyanka Tripathi do some hilarious dares.
-
-India to send military teams for drills in US and Russia.
-
-Stove Kraft to set up automated foundry for cast iron cookware.
-
-Cabinet discussion on capital shift a move to divert people’s attention from Naidu’s arrest, says Ganta Srinivasa Rao.
-
-Demonstration against NEP 2020.
-
-Tollywood actor Navdeep Pallapolu appears for questioning in drugs case.
-
-Grandeur marks Golden Chariot procession of Lord Venkateswara in Tirumala.
-
-Elizabeth Antony creates flutter with testimony video.
-
-Traffic police recommend suspension of around 26,000 licences for not wearing helmet.
-
-Night bus facility will be available from old bus stand to the new terminus in Kovilpatti, says Minister at review meeting.
-
-Tejashwi slams BJP, says Bidhuri speaks like a ‘mawaali’.
-
-Telugu Dari aims at inculcating good Telugu among all classes of learners of the language.
-
-Simultaneous poll panel to invite political parties, Law Commission for views on synchronised polls.
-
-Nannaya university offers food science course in collaboration with CFTRI.
-
-Prime Minister Narendra Modi to address public meeting in Mahabubnagar on September 30 to ‘galvanise’ the cadre.
-
-School students try their hand at designing integrated circuits.
-
-Chennai Metro Rail to come up with a manual for helping passengers when services are hit because of glitch.
-
-Budget progressively coming down; Centre aims to dilute MGNREGS, says Kerala Minister M.B. Rajesh.
-
-More than 13,000 students take part in graVITas’23 technology fest.
-
-Food safety dept. imposes ₹14-lakh penalty on violators in Ernakulam district.
-
-MGMGH doctors harvest organs from road accident victim.
-
-Attempts to stifle Opposition’s voice in A.P. ahead of the elections are a threat to democracy, say leaders at all-party meeting.
-
-DUSU polls: ABVP wins 3 central panel posts, NSUI one.
-
-Tamil Nadu will soon come out with a AVGC-XR policy.
-
-Youth Congress appeal to Collector on banners in public places.
-
-Two-day national workshop on agriculture and homeopathy.
-
-Asian Games 2023: Gymnast Pranati Nayak focussed on giving her best.
-
-Top news of the day: NIA confiscates properties of SFJ’s Gurpatwant Singh Pannun; Chandrababu Naidu moves Supreme Court in Andhra Pradesh skill development scam case, and more.
-
-Aardratheeram, an initiative of Kollam district panchayat in Kerala that offers assisted living facilities to autistic adults and their parents.
-
-Regular classes outside containment zones to resume on Monday.
-
-‘The Continental: From the World of John Wick’ series review: This unnecessary prequel spin-off bites the bullet.
-
-Realtors to host South Zone Business Exchange Meet in Mysuru.
-
-Hangzhou Asian Games opens with futuristic ceremony.
-
-Central government office space of the size of 320 football fields cleared of clutter in the past two years, data shows.
-
-Tennis | Anirudh and Vijay lose ATP doubles quarterfinals.
-
-Labour supervisor crushed to death.
-
-Efforts on to revive FACT-RCF Building Products.
-
-Will fight foisted cases against Naidu legally, politically, say TDP MLAs from Prakasam district.
-
-Cauvery protests hit weekend tourism in Mysuru.
-
-Power shutdown on Tuesday.
-
-Political parties in Punjab adopt contrasting strategies amid India-Canada conflict.
-
-Is the TDP heading towards a leadership crisis in Andhra Pradesh?.
-
-Complete technical evaluation works of Vizag Metro Rail by January 2024, Chief Secretary Jawahar Reddy directs officials in Visakhapatnam.
-
-Aavin invites applications.
-
-Artificially flavoured meat items destroyed in Erode.
-
-50 crore bank accounts opened, says Union Minister in Coimbatore.
-
-Abandoned structures turn havens for miscreants in Kozhikode.
-
-Submission of GPS-enabled photo documents made compulsory for land registration from October 1.
-
-Thangaraja emerges the champion.
-
-Skill development scam case: Naidu moves SC against HC order.
-
-Asian Games 2023: India men’s and women’s teams advance in table tennis.
-
-District administration all set for maiden Janatha Darshan in Yadgir.
-
-Flower seller hacked to death.
-
-Rising number of ‘predatory’ academic journals undermines research and public trust in scholarship.
-
-Fishing boats impounded at Thikkodi fish landing centre in Kozhikode.
-
-Cancel Group-I preliminary test held on June 11, reconduct it: HC to TSPSC.
-
-Dravidian leader Tiruppur S. Duraisamy debunks Annamalai’s claim on Annadurai.
-
-Deepavali discount sale launched at Cooptex outlet in Tiruppur.
-
-Surgeons perform second pig heart transplant, trying to save a dying man.
-
-Over 1,000 take part in ‘Yercaud Our Pride’ awareness walkathon in Salem.
-
-Police treading carefully on petition against ED.
-
-Pay ₹35,000 per acre to farmers for crop loss during Kuruvai: Palaniswami.
-
-St. John’s Vestry School celebrates 260th anniversary.
-
-Illustrious Ruler, Priceless Ruler, Lebua and Presto Power please.
-
-Plantation drive on BHEL campus.
-
-Residents seek measures to prevent discharge of sewage into Uyyakondan canal.
-
-Ahead Of My Time and Place Vendome impress.
-
-Shamrock, Stravinsky, Synthesis, Victoria Punch, Irish Coffee and Rembrandt excel.
-
-Hydrogen project of KSEB: Nine firms present proposals.
-
-PM Modi gives credit to women for passage of women's reservation bill in Parliament.
-
-Farmers from Thevaram in Theni district seek protection for crops from elephants; stage demonstration in front of forest office.
-
-Clock tower chimes again at Neravy in Karaikal.
-
-Chennai Corporation to blacklist contractors for delay in completing roadworks.
-
-Most pink diamonds were birthed by a disintegrating supercontinent. Where can we find more?.
-
-Women given jobs under MGNREGS in Bargur hills.
-
-Sivakarthikeyan’s ‘Ayalaan’ gets a new release date.
-
-Alliance with JD(S) will spell doom for BJP: M. Veerappa Moily.
-
-Then president Kovind not invited for foundation laying of new Parliament building as he is 'untouchable': Kharge.
-
-Trevor Noah’s ‘Off The Record’ tour: Delhiites learn of Delhi woes, as explained by Trevor.
-
-Co-optex fixes ₹ 3 crore target for Deepavali sales in Erode.
-
-‘No One Will Save You’ movie review: Kaitlyn Dever’s gotta do it all on her own.
-
-NIA arrests one accused in Manipur transnational conspiracy case.
-
-Funds misappropriated in Assam tribal council: Congress.
-
-Tennis | Priyanshi Bhandari wins AITA women’s tournament.
-
-Water level in Mettur Dam stands at 37.78 feet.
-
-Colombia's Presidential office manipulates video of President Gustavo Petro at United Nations to hype applause.
-
-If we imagine 'Ram Rajya', it should have good and free education, healthcare for all: Delhi CM Kejriwal.
-
-England had 4,500 heat-related deaths during record-breaking 2022.
-
-‘Veerangana Durgavati Tiger Reserve’ becomes Madhya Pradesh’s 7th protected habitat for big cats.
-
-BJP will take up booth-level review meetings from September 27 in Vizianagaram district.
-
-The Philippines weighs legal options against China over coral reef 'destruction'.
-
-Bengaluru to host World Coffee Conference for first time.
-
-Russell Brand makes first comments amid wave of sexual assault allegations.
-
-Mayor inaugurates special medical camp at Udayampalayam in Coimbatore.
-
-Cauvery water release | Call for Bengaluru bandh on September 26.
-
-Cauvery water release from KRS, Kabini reservoirs continue in compliance with CWMA directives.
-
-NIA confiscates properties of SFJ’s Gurpatwant Singh Pannun.
-
-Court allows textile shops to function on Gani market premises till December end.
-
-Civil Military Liaison Meeting held at Sulur Air Force Station.
-
-Lokesh conveys ‘bail day anniversary’ greetings to CM Jagan.
-
-KR Pura metro | Bengaluru’s Outer Ring Road firms for operating feeder buses.
-
-NCPCR summons 20 district Collectors for not submitting details of drug abuse among children in AP.
-
-India-Canada row: Blinken calls on Delhi to cooperate in push for ‘accountability’ over killing.
-
-‘Very messy’: India-Canada row over Sikh killing causes diplomatic shock waves.
-
-Rhino numbers rebound as global figures reveal a win for conservation.
-
-Canada has evidence linking Indian diplomats to killing of Sikh activist, media reports.
-
-India suspends visa services for Canadians in further decline in relations.
-
-Indian actor Anil Kapoor wins court battle over AI use of his likeness.
-
-India’s lower house votes to reserve a third of seats for women.
-
-How should UK, US and Australia respond to Canada-India row?.
-
-India urges its citizens to exercise ‘extreme caution’ in Canada.
-
-Why India’s souring relations with Canada could have wider implications for the west | Chietigj Bajpaee.
-
-War in Ukraine is revealing a new global order – and the ‘power south’ is the winner | Nathalie Tocci.
-
-Israeli ambassador protests as Iranian president speaks - as it happened.
-
-Canada killing adds to suspicions of Indian crackdown on Sikh separatists.
-
-Canada and India make tit-for-tat envoy expulsions over killing of Sikh leader.
-
-The Guardian view on Canada and India: from partnership to public claims of a killing | Editorial.
-
-Canada blames India for alleged assassination as tensions rise – video report.
-
-‘A life is a life’: Seattle protests death of Indian student hit by police car.
-
-‘Chill out’: Albanese asked about calling Indian PM ‘the boss’ as storm brews over alleged assassination.
-
-‘Credible allegations’ link India to killing of Sikh leader, says Trudeau.
-
-Explainer: what’s behind the growing tensions between Canada and India?.
-
-NIA confiscates SFJ chief Gurpatwant Singh Pannu’s properties in Amritsar and Chandigarh - WION.
-
-DU Students Union polls 2023: ABVP wins 2 central penal seats, NSUI bags vice-president post | Mint - Mint.
-
-Ramesh Bidhuri no stranger to controversies. 5 remarks by BJP MP that stoked row - Hindustan Times.
-
-Punjab students invest a whopping ₹68,000 crore annually for studying in Canada: Report | Mint - Mint.
-
-PM Modi To Flag Off 9 New Vande Bharat Express Trains In 11 States Tomorrow - NDTV.
-
-Internet ban in Manipur to be lifted from today: CM Biren Singh - Hindustan Times.
-
-From Rani Lakshmi Bai To Chandrayaan-3, India Proved Women's Leadership In Every Era: PM Modi In Varanasi - ABP Live.
-
-US envoy confirms Canada received intelligence from Five Eyes partners before Trudeau went public with allegations against India - The Tribune India.
-
-Rail Minister's Big Announcement: High-Speed Train In Gujarat In 6 Months - NDTV.
-
-Cauvery dispute: Bengaluru bandh on September 26; schools, IT companies asked to declare holiday - Moneycontrol.
-
-‘Nijjar, Osama More Than Plumbers, Construction Workers’: Ex-Pentagon Official on Blinken’s ‘Transnational - News18.
-
-'They hate our hardware': Ukraine says it's 'unleashing hell' on Russians near key city - IndiaTimes.
-
-Russian Ilyushin Il-20 ‘Coot’ Damaged In New Attacks; Ukraine, Russia Strike Each Other Beyond The Frontlines - EurAsian Times.
-
-Shehbaz downplays speculations around London trip - Pakistan - [DAWN.COM](http://DAWN.COM) - [DAWN.com](http://DAWN.com).
-
-Tata Projects to construct Micron's advanced semiconductor facility in Sanand, roll out semiconductor chips by next year | Mint - Mint.
-
-Centre looking to increase local sourcing of IT parts to $20 billion, to restrict Chinese imports - Moneycontrol.
-
-Explained: Why India's Inclusion In JP Morgan's Emerging Markets Bond Index Matters - Swarajya.
-
-A week of profit booking as a hawkish Fed, crude and FII selling weigh heavy - Moneycontrol.
-
-iPhone 15 Now Available on Blinkit in Select Cities; Promises Phone Delivery in 10 Minutes | Technology News - Gadgets 360.
-
-Flipkart Big Billion Days Sale 2023: Details on bank offers | Mint - Mint.
-
-Weekend poll: How long have you been an Android user? - Android Police.
-
-Vivo T2 Pro 5G launched in India: 5 Things to know | Mint - Mint.
-
-Parineeti Chopra and Raghav Chadha wedding live updates: Arvind Kejriwal, Bhagwant Mann and others arrive in Udaipur - Hindustan Times.
-
-Shah Rukh Khan's LOL Reply To Fan Standing Outside Mannat: "All Good There Na?" - NDTV Movies.
-
-Weekly Horoscope, Sep 24, 2023 – Sep 30, 2023: Aries, Taurus and other signs — check astrological prediction - The Indian Express.
-
-Sukhee box office collection day 1: Shilpa's film mints ₹30 lakh in India - Hindustan Times.
-
-Asian Games 2023 Opening Ceremony Live Updates: Chinese president Xi Jinping declares 19th Asian Games open - The Indian Express.
-
-India vs Australia: Mohammed Shami Becomes First India Pacer In 16 Years To Achieve Massive ODI Feat.. - NDTV Sports.
-
-Pakistan cricket team awaits India visa for Cricket World Cup travel, team bonding trip to Dubai cancelled - India Today.
-
-Cricket legends Tendulkar, Gavaskar, Kapil Dev join PM Modi for Varanasi Cricket Stadium Foundation Stone Ceremony - Times of India.
-
-Chandrayaan-3: No signal from Vikram & Pragyan yet, can wait entire lunar day (14 Earth days), says Isro - IndiaTimes.
-
-NASA’s OSIRIS-REx: First-ever asteroid sample to drop on Earth tomorrow - The Indian Express.
-
-ISRO Achieves Milestone: Successful Second Orbit-Raising Maneuver For Aditya-L1 - The Logical Indian.
-
-Gravitational Instabilities and Galaxy Evolution - INSIGHTSIAS - Insights IAS.
-
-Alarming rise in dengue cases in Kolkata - Awaz The Voice.
-
-Anti-dengue drive: Mosquito larvae found at three sites in pvt hospital - The Tribune India.
-
-Clinical trial to test immune modulation strategy for hospitalized COVID-19 patients begins - EurekAlert.
-
-Hypertension treatment cascade among men and women of reproductive age group in India: analysis of National Family Health Survey-5 (2019–2021) - The Lancet.
+* An inflammatory comment by one commentator lays bare a sense of political friction in the diaspora.
+    
+    Chandrayaan-3 was dormant during lunar night, but the extreme cold could have harmed its batteries.
+    
+    Beijing denies claims three Indian fighters are unable to enter China for the Asian Games.
+    
+    Canadian Prime Minister Justin Trudeau has said that there were "credible reasons" for the allegation.
+    
+    The decades-old bill guarantees a third of seats for women in parliament and state assemblies.
+    
+    Many Indian nationals will be able to go home but the visa suspension will be disruptive for tourists.
+    
+    Pace bowler Naseem Shah is ruled out of Pakistan's squad for the 50-over World Cup in India because of a shoulder injury.
+    
+    Justin Trudeau said he was not trying to "provoke" India in the row over the killing of a Sikh leader.
+    
+    Memories of the decade-long armed Sikh insurgency, which peaked in the 1980s, remain strong.
+    
+    Prime minister Modi praises bill as "special moment" for his country, ahead of general elections.
+    
+    Two photographers from Tamil Nadu recall what it was like taking pictures of the dead for a living.
+    
+    Four months after it was torn apart by deadly ethnic violence, Manipur remains gripped by fear.
+    
+    Hardeep Singh Nijjar's fatal shooting in June placed him at the center of a rift between India and Canada.
+    
+    The rift between two strategic partners erupted over a Sikh separatist leader's murder in Canada.
+    
+    A former Nasa scientist decodes the significance of the discoveries made by the lunar lander and rover.
+    
+    Hundreds of Sikhs protested against the Indian state after the killing of a prominent leader in Canada.
+    
+    India's capital Delhi has undergone a makeover as it prepares to host world leaders.
+    
+    There's excitement in India's capital Delhi ahead of the G20 summit - but also despair.
+    
+    See a simulation of the moment Chandrayaan-3 lands near the Moon's south pole for the first time.
+    
+    India's leader Narendra Modi speaks after Chandrayaan-3 becomes the first space mission to land near the south pole of the Moon.
+    
+    Watch Samira Hussein's response as India's Chandrayaan-3 space mission reaches the lunar surface.
+    
+    The Chandrayaan-3 craft with an orbiter, lander and a rover lifted off on Friday from Sriharikota space centre.
+    
+    The Indian Space Research Organisation (ISRO) has not received any signal from the Chandrayaan-3 lander and rover, Vikram and Pragyan, since their landing on the lunar surface. However, there is still hope that they may wake up during the 14-day lunar day period. If they do wake up, it would allow for repeated in situ experiments and the collection of new data from different locations on the Moon. Despite this, the mission has already been considered successful in meeting all its objectives.
+    
+    Congress leader Jairam Ramesh criticized the new Parliament building, calling it "Modi Multiplex or Modi Marriot." BJP president JP Nadda responded, calling the remark a "pathetic mindset" and an insult to Indians. Union minister Giriraj Singh demanded an assessment and rationalization of the "Dynastic Dens" in India, starting with the transfer of the Safdarjung Road complex back to the government.
+    
+    As India and Canada remain embroiled in a diplomatic row over the killing of Khalistani leader Hardeep Singh Nijjar, the National Investigation Agency on Saturday seized his property at his home in Punjab's Jalandhar district. NIA also confiscated the property of SFJ founder and New-York based secessionist Sikh leader Gurpatwant Singh Pannun, in Chandigarh. He had earlier warned the Hindu community in Canada to leave the country and return to India.
+    
+    The Hangzhou Asian Games, a blend of artificial intelligence and eco-friendly technology, opened with a unique opening ceremony featuring a futuristic light show.
+    
+    Haryana Congress president Udai Bhan found himself in a soup on Saturday after using "derogatory language" against Prime Minister Narendra Modi and Haryana chief minister Manohar Lal Khattar.BJP leaders lashed out at Bhan for his choice of words against PM Modi and Khattar and demanded an [apology.In](http://apology.In) a video that is now viral, the Haryana Congress chief can be heard using abusive words while referring to the Prime Minister and the Haryana chief minister.
+    
+    India batter Suryakumar Yadav praised pacer Mohammed Shami for his five-wicket performance against Australia in the opening match of the three-match ODI series. Shami's swagger and precision dismantled Australia's batting order, with Steve Smith's dismissal being a standout moment. Yadav praised Shami's remarkable achievement, considering his sporadic opportunities in the Indian cricket team.
+    
+    Tennis fans couldn't hope for a more thrilling experience than witnessing the all-time legends of the sport, Roger Federer and Rafael Nadal, come together. These longtime rivals engaged in a delightful exchange of humor following the first day of the Laver Cup in Vancouver on Friday, during Federer's on-court Q&A session.
+    
+    According to recent statistics released by the US Census Board, immigrants, both legal and illegal, make up 13.9% of the total US population. This is a slight increase from the previous year's ratio of 13.6%. The foreign-born population stood at 46.1 million in July 2022, with Indian and Chinese immigrants each comprising 6% of the total immigration count. The number of immigrants from Mexico slightly decreased.
+    
+    ABVP candidate Tushar Dedha won the President’s post, Aprajita and Sachin Baisla won the post secretary and joint secretary, respectively.
+    
+    The US has officially confirmed that there was shared intelligence among the Five Eyes partners, including Canada, regarding the potential link between the Indian government and the killing of Khalistani terrorist Hardeep Singh Nijjar. United States Ambassador to Canada, David Cohen, stated that there was significant communication between Canada and the US on this matter.
+    
+    India's stand-in skipper KL Rahul, leading the team in the first two ODIs of the three-match series against Australia, discussed the differences between batting as an opener and in middle order. Rahul, who has predominantly opened the innings, highlighted the significant difference between the two roles after delivering a match-winning performance with a half-century at No.4.
+    
+    Union minister Ashwini Vaishnaw said on Saturday that two big semiconductor proposals are under process and expected to take shape in the coming few months.Vaishnaw, who was at groundbreaking ceremony of Micron's semiconductor plant in Gujarat, asserted that India's first indigenous microchips are expected to be rolled out by December 2024.He, however, didn't reveal any details about the proposals.
+    
+    Salman Khan features in the first promo for the upcoming season of the controversial reality show Bigg Boss. The teaser shows the Bollywood superstar with his new short hairstyle, adding to the anticipation for the show's return. Khan hints at upcoming twists and tests of love in the teaser. The new season, set to premiere in mid-October, will reportedly have a couple's theme and feature several well-known television personalities.
+    
+    A purported video of the incident is doing rounds on social media platforms
+    
+    Prime Minister Narendra Modi laid the foundation stone for an international cricket stadium in Varanasi. The stadium, dedicated to Lord Shiva, is expected to benefit local sportspersons and the economy. The design of the stadium will incorporate elements inspired by the city of Varanasi, such as a crescent-shaped roof, floodlights shaped like a trident, and structures resembling a 'damru' and bel leaves.
+    
+    Ukraine said that its use of Western-supplied heavy weaponry in the intense battle at the outskirts of Bakhmut, seized by Russia in May, is significantly impacting the enemy's positions.
+    
+    The high-level committee formed to explore the feasibility of simultaneous polls on Saturday said it will seek the views of all national and state parties on the issue of synchronised elections."Simultaneous polls panel has decided to invite recognised national and state parties to seek their views on the issue of synchronised elections," the panel said in a statement after holding its first meeting today.
+    
+    Former India opener Gautam Gambhir believes that amidst a multitude of batting stars, it is Pakistan captain Babar Azam who possesses the potential to set the ICC ODI World Cup ablaze.
+    
+    The recent strain in Indo-Canadian diplomatic ties may impact the number of prospective students heading to Canada for higher education. Safety concerns and potential hate crimes in Canada are causing students to consider alternative options. Experts suggest that the fear is real and could lead to a shift in preferences towards other countries, as seen in the past with the US and Australia.
+    
+    Australia has become the latest country to back India for a permanent United Nations Security Council (UNSC) seat. Australia foreign minister Penny Wong has said that there is a need to ensure greater permanent representation with the inclusion of countries like India and Japan. Earlier, during his recent visit to India, US President Joe Biden reiterated support for India’s bid for a permanent seat at the UN Security Council.
+    
+    On Saturday, during the laying of the cornerstone for the international cricket stadium in Uttar Pradesh in Varanasi, legendary cricketer Sachin Tendulkar presented Prime Minister Narendra Modi a jersey from the Indian cricket team.
+    
+    Indian diplomatic personnel in Canada may have been subjected to illegal surveillance by the Trudeau government, according to claims made by authorities in Ottawa.
+    
+    Actors Priyanka Singh and Ramit Thakur have welcomed a baby girl, although they had not previously announced their pregnancy. Priyanka had a surgery but both mother and baby are doing well. The couple has named their daughter Vramika, although they currently call her Radhika. Priyanka plans to take a break from work for five to six months to focus on motherhood, while Ramit continues to shoot for his upcoming movie. The couple has been married for over five years.
+    
+    India will face Australia in the second ODI in Indore. Shreyas Iyer will be looking to score runs after missing out in the previous match, while R Ashwin will aim to take wickets. The Holkar Stadium, known for high-scoring matches, will host the game. India won the first ODI comfortably despite missing key players. Iyer, India's number 4, has had limited time in the middle due to various issues.
+    
+    Pope Francis made a video call to the 95-year-old mother of a priest in Kerala, India. The call was initiated after the woman contracted Covid-19 during the Pope's visit to Canada. The Pope expressed his concern for her well-being and asked for her prayers, while also praising her for raising her grandson, who is part of the Pope's travel team. The call highlighted the Pope's care for the elderly, and the woman was deeply moved by the experience.
+    
+    Rahul Vaidya and Disha Parmar are celebrating a double joy as they welcome their baby girl on September 20 and bring her home on Rahul's birthday. The couple was spotted outside the hospital, with Rahul carrying their daughter. They expressed their gratitude to the hospital and doctors and mentioned that the name for their daughter will be decided by her grandmas. Rahul and Disha are overjoyed by the unexpected timing of their daughter's birth during Ganeshotsav.
+    
+    The Indian government plans to restrict imports of IT hardware components worth billions of dollars from China in an effort to boost local sourcing. With the implementation of a production-linked incentive scheme for IT hardware and an import management system, the government aims to create a stronger manufacturing ecosystem for devices and servers in India.
+    
+    Despite India's efforts to extradite "fugitive NRIs" wanted in a drug and money laundering case, the Canadian government has consistently rejected their requests. The Punjab and Haryana high court records show that Canadian agencies have cited technical discrepancies in the documents as reasons for rejection. The investigation agencies, including Punjab police and the directorate of enforcement, have been searching for these NRIs since 2015-16. Despite providing personal addresses and following proper channels, Canada has been non-cooperative in clearing the extradition process, according to Indian authorities.
+    
+    Pakistan had initially scheduled a trip to the UAE for next week, where they would spend a few days before proceeding to Hyderabad for their first warm-up match against New Zealand on September 29.
+    
+    The Manipur government on Friday asked the people in possession of "illegal weapons" to surrender them within 15 days or face "comprehensive search operations by security forces". The chief minister's office issued a statement in this regard, which added that the government "is willing to take a considerate view of the persons submitting such illegal weapons within 15 days".
+    
+    Canadian authorities added Hardeep Singh Nijjar to the 'no-fly list' after receiving information from India about his criminal activities. Nijjar, who had a red corner notice issued against him by Interpol, entered Canadian politics and obtained Canadian citizenship to avoid extradition. He took control of a gurdwara in Canada and used it as a hub for Khalistani activities.
+    
+    The Supreme Court has acquitted two death row convicts and one lifer in a murder case due to a poorly conducted investigation. The court expressed concern over the inefficiency and lack of professionalism in police investigations and called for the development of a code of investigation to ensure better standards.
+    
+    The new Orange Vande Bharat on the Kasaragod-Thiruvananthapuram route in Kerala will be the second train on this route, but instead of Kotayam it will go through Alappuzha.
+    
+    No case is made out under IPC section 377 (unnatural sex) between a husband and wife as there is no bar on them from going beyond conventional sex, Madhya Pradesh high court has ruled, while quashing an FIR filed against Congress MLA Umang Singhar by his wife, accusing him of indulging in unnatural sex.
+    
+    In what was their second meeting this year, the Quad foreign ministers reiterated their commitment to a free, open, inclusive and resilient Indo-Pacific that is free from intimidation and coercion, and where disputes are settled in accordance with international law.
+    
+    Social media platform X's head of policy for India and South Asia, Samiran Gupta on Saturday resigned, sources told Reuters. He was tasked with overseeing crucial content-related policy matters and advocating for Twitter's stance in light of emerging policy changes, as well as providing support to the local sales team.
+    
+    After his team secured a five-wicket victory over Australia in the opening ODI, Indian captain KL Rahul expressed satisfaction with his partnership alongside Suryakumar Yadav. KL Rahul mentioned that they discussed executing well-placed shots and effectively rotating the strike during their time at the crease.
+    
+    India has strongly criticized Pakistan's interim Prime Minister for invoking the Kashmir issue during his speech at the United Nations General Assembly. The Indian diplomat at the UN called on Pakistan to stop cross-border terrorism, vacate Indian territories under its occupation, and address human rights violations against minorities. The diplomat also highlighted Pakistan's misuse of the UN platform to spread baseless propaganda against India.
+    
+    India's premier spinner Ravichandran Ashwin isn't part of India's squad for the ICC World Cup 2023. However, Ashwin remains optimistic about securing a spot among the 15-member squad representing India in the quest for the coveted trophy. India's journey in the 2023 World Cup will commence on October 8 in Chennai against Australia.
+    
+    India is expecting a record medal haul at the 19th Asian Games, with a strong contingent of 655 athletes. Key contenders for gold include athletes Neeraj Chopra in men's javelin, Murali Sreeshankar and Jeswin Aldrin in men's long jump, women's 4x400m relay team, boxers Nikhat Zareen and Lovlina Borgohain, wrestler Bajrang Punia, badminton pair Satwiksairaj Rankireddy and Chirag Shetty, and the men's hockey team.
+    
+    The Water Resources Department has completed 70% of the training wall; when completed it would reduce formation of sand blocks and facilitate free flow of water
+    
+    He added that the statement of Minister K.N. Rajanna was his personal opinion
+    
+    TDP spokesman Pattabhiram says he has written to the publication about Chief Minister Jagan Mohan Reddy’s ‘achievement of successfully being out on bail for 10 long years in 11 corruption cases being investigated by the CBI and Enforcement Directorate’
+    
+    The Union Minister also sought to know why the funds available under SDRF were not being used for relief works
+    
+    An official says rotating seats in executive chair car will help passengers sit in the direction of the train movement; members of a small group can sit facing each other
+    
+    Bengaluru-based manufacturer of Pigeon brand cookware to invest ₹55 crore to put up a fully automated foundry for cast iron cookware
+    
+    People have understood that it is a clear case of political vendetta, and the various surveys have shown that there is a groundswell of support for the TDP chief after his arrest in a ‘false case’, says Ganta Srinivasa Rao
+    
+    All India Save Education Committee to organise the protest march on September 26
+    
+    Festivities take off to a religious start on the sixth day of Brahmotsavams with the procession of ‘Hanumantha vahanam’
+    
+    In a video released by a Christian retreat centre, she says she no longer harbours any political ill will towards BJP. It also attributes the sudden rise of her son Anil Antony in the national party to a divine intervention
+    
+    Mr. Yadav stressed that BJP MPs are not hesitant using abusive language while sitting in the temple of democracy
+    
+    The recent book by doyen of Telugu studies Velcheru Narayana Rao – Telugu Dari: A Grammar of Modern Telugu – is a combination of a comprehensive reference grammar and a graded primer for students, says David Shulman in his review of the book
+    
+    Outlining the modalities of working of the committee, it decided to invite recognised national parties, parties having governments in states.
+    
+    Food science laboratory to be set up on varsity campus at a cost of ₹80 lakh
+    
+    Modi’s first meeting in Telangana after the women’s reservation Bill is passed
+    
+    Digital University Kerala in association with IEEE CASS organised the programme for students of Classes 6 to 10.
+    
+    Once the extensive manual is ready, a system would be put in place to inform commuters through multiple means immediately so that they know about a glitch
+    
+    He says there should be an urban employment guarantee scheme on the lines of the MGNREGS
+    
+    The three-day festival, which has been organised by Vellore Institute of Technology since 2008, will comprise of 150 competitions this year, with prizes worth ₹20 lakh up for grabs
+    
+    The ‘dictatorial style’ of functioning of Chief Minister Jagan Mohan Reddy is evident from the way TDP chief Chandrababu Naidu is arrested in a ‘false case’ six months before the elections, opine participants
+    
+    Twenty-four candidates were in the fray for the four posts this year.
+    
+    The workshop is organised to disseminate the findings of extensive research conducted by Sri Aurobindo Society for the last four years and the experiences of farmers who are partners in carrying out this research
+    
+    As the lone Indian gymnast at the Asian Games here, Pranati is glad of the responsibility but also admits having a team around is always better
+    
+    The major news headlines of the day and more.
+    
+    In containment zones, online classes to continue until further orders
+    
+    Despite each of its three episodes running close to the runtime of a ‘John Wick’ film, the series never lingers at its moments and jarringly jumps from one sequence to another
+    
+    The meet is aimed at bringing together stakeholders in the real estate sector of South India, says P. Mahaveer, president of Mysuru Realtors’ Association
+    
+    The dazzling programme, held amid a diplomatic row over the denial of entry to three Indian athletes from Arunachal Pradesh, was a melange of technology, cultural history of China, and the spirit of the continent’s unity.
+    
+    Weeding out physical files, reducing pendency of public grievances, beautifying office space, and moving to the digital mode are part of the ongoing ‘Special Campaign’ Secretariat reforms
+    
+    The products of FRBL can help reduce the cost of house-building by 20% to 22% and increase space availability by 8% to 10%. The production here came to a virtual standstill ahead of the COVID-19 lockdown
+    
+    TDP MLAs from the district urge party cadre not to lose heart over the arrest of Mr. Naidu; resolve to take ‘Babu surety-Bhavishyathu ki guarantee‘ campaign to grassroots
+    
+    Stakeholders concerned over cumulative impact of scaled-down Dasara festivities and Cauvery crisis in Mysuru
+    
+    With a 7.7 lakh-strong Sikh diaspora in Canada, the conflict about a pro-Khalistan leader has political implications in Punjab; parties appeal to different vote banks in Punjab, other States, and the diaspora
+    
+    With the arrest of Chandrababu Naidu by the CID in the alleged skill development scam case, and uncertainty looming over his release in the near future as the investigating agency is reportedly bracing to corner him and his son Lokesh in one case or the other, the question that worries the rank and file is who will lead the party and take on the YSRCP in the 2024 elections
+    
+    ‘National History Museum, Signature Tower and Convention Centre at Kapuluppada, Water Park on the Vizag-Bheemili road, Science City on Kailasagiri Hills, Kalavani Indoor Stadium on the lines of Kalabharati in Hyderabad will be developed’
+    
+    Unguarded stretches of public parks also remain open for drug pushers and addicts
+    
+    The men’s side eases past Tajikistan 3-0 while the women’s team topples Nepal by the same scoreline; both squads rest key players to test their bench strength
+    
+    Some journals charge academics to publish their research – without first editing or scrutinizing the work with any ethical or editorial standards
+    
+    Since the Commission did not issue any addendum notifying any changes it was bound to carry out all the provisions in notification issued for the examination
+    
+    While the next few weeks will be critical, doctors were thrilled at Faucette’s early response to the pig organ.
+    
+    KSEB identifies its own land at the Brahmapuram Diesel Power Plant as a possible location for the pilot project.
+    
+    Striking a chord with the voters of Varanasi, Mr. Modi said "your MP from Kashi got the privilege" of getting the women's reservation bill passed in Parliament.
+    
+    Corporation Commissioner J. Radhakrishnan has asked officials to convene a meeting with contractors on Monday to identify issues pertaining to roadworks
+    
+    More than 90% of all the pink diamonds ever found come from a single mine in the Kimberley region of Western Australia: Argyle
+    
+    ‘Ayalaan’, starring Sivakarthikeyan, is directed by Ravikumar, known for his time travel comedy thriller ‘Indu Netru Naalai’
+    
+    He said the Congress had bitter taste of alliance with Janata Dal (Secular).
+    
+    He said the BJP thought of the women's reservation bill just ahead of elections as several opposition parties have formed the INDIA bloc.
+    
+    The ‘Off The Record’ tour was marked by its interactive-ness as comedian Trevor Noah moves away from a prepared set and poses questions to the audience
+    
+    Kaitlyn Dever’s arresting performance keeps this alien invasion outing together, though she is limited by the almost complete lack of dialogue in the narrative, and the final stretch not doing her justice
+    
+    Myanmar-based leaders of insurgent groups and proscribed terror outfits were ‘collecting arms, ammunition and explosives by unlawful means, including plunder and pillage of government facilities’, the agency alleges
+    
+    A sum of ₹100 crore for road improvement was distributed between two firms owned by kin of the council’s chief, it is alleged
+    
+    Although Gustavo Petro did receive applause, the final clip of the video posted on the government's YouTube channel does not correspond to what was broadcast in the UN video.
+    
+    Speaking in an event in Delhi, Mr. Kejriwal said that everybody should have access to good education and healthcare and the AAP-led Delhi government is trying to work in that direction
