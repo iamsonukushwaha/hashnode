@@ -10,5 +10,4 @@ How to Delete and download all data of Google Account?
 
 I have deleted my Google account for this video
 
-
-%[https://youtu.be/X3kVZL4zRKE ]
+%[https://youtu.be/X3kVZL4zRKE]
