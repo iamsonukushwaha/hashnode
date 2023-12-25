@@ -8,8 +8,4 @@ slug: terminal-like-landing-page
 
 Terminal Like Landing Page website
 
-
-
-%[https://youtu.be/fi_qZe4Hy2M ]
-
-
+%[https://youtu.be/fi_qZe4Hy2M]
