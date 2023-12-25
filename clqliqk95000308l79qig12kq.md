@@ -8,11 +8,6 @@ slug: singlebucks-browser
 
 Singlebucks Browser
 
-
-
-
-
-
-
+[https://youtu.be/0eEhWsajVyg](https://youtu.be/0eEhWsajVyg)
 
 %[https://youtu.be/YQzzcCeRjVo]
