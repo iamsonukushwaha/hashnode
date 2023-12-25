@@ -8,5 +8,4 @@ slug: frameset-tag-in-html
 
 Frameset tag in HTML
 
-
-%[https://youtu.be/fRsSjpIk1tc ]
+%[https://youtu.be/fRsSjpIk1tc]
